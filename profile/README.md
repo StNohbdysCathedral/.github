@@ -1,6 +1,6 @@
 # St. Nohbdy's Cathedral ~ Vol. II
 
-[![St. Nohbdy's Cathedral, GPDMCC, Ryan ~ An Introductory Ramble](https://img.youtube.com/vi/bahbjHNuBjo?si=tSFcIyAN6VGV7_Yr/maxresdefault.jpg)]([https://youtu.be/T-D1KVIuvjA](https://youtu.be/bahbjHNuBjo?si=tSFcIyAN6VGV7_Yr))
+[![St. Nohbdy's Cathedral, GPDMCC, Ryan ~ An Introductory Ramble](https://img.youtube.com/vi/bahbjHNuBjo/maxresdefault.jpg)]([https://youtu.be/T-D1KVIuvjA](https://youtu.be/bahbjHNuBjo))
 
 ## St. Nohbdy's Cathedral;
 it floats on the GPDMCC(.org) docks. 'Tis a strange construct with accordion-like walls, floating on a ship -- oh, nope now a crane has placed it upon a rail station. Off it goes. Somehow, another cathedral has risen from under the water, and the cycle continues. Huh!? There seem to be occult symbols everywhere, and yet crosses too. The hexadecimal is going on here? :3
